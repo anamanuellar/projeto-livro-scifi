@@ -1,0 +1,5 @@
+# Capítulo 1
+
+Science fiction (sometimes shortened to sf or sci-fi) is a genre of speculative fiction, which typically deals with imaginative and futuristic concepts such as advanced science and technology, space exploration, time travel, parallel universes, and extraterrestrial life. Science fiction can trace its roots to ancient mythology.[1] It is related to fantasy, horror, and superhero fiction and contains many subgenres. Its exact definition has long been disputed among authors, critics, scholars, and readers.
+
+Science fiction, in literature, film, television, and other media, has become popular and influential over much of the world. It has been called the "literature of ideas," and often explores the potential consequences of scientific, social, and technological innovations.[2][3] It sometimes serves as an outlet to facilitate future scientific and technological innovations.[4] Besides providing entertainment, it can also criticize present-day society and explore alternatives. It is also often said to inspire a "sense of wonder."[5]
